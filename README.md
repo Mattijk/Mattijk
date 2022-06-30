@@ -1,2 +1,2 @@
-Jeg hedder Matti, går under navnet Matti-JK. 
+Hej med dig, hvad fanden laver du lige her, kan du så gå væk...
 
